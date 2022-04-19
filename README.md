@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Donald Xavier 
+- 👀 I’m interested in Data Science, Trading 
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me simple, DM me
